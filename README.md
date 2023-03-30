@@ -181,5 +181,5 @@ If you have any feedback, please reach out to me at padammanojpatel4113@gmail.co
 
 ## Author
 
-- [@SanambirSingh](https://github.com/Manoj4113) 🤗
+- [@MANOJ PATEL PADAM](https://github.com/Manoj4113) 🤗
 
