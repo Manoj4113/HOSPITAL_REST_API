@@ -176,10 +176,10 @@ Love to create, design and build cool projects 😎 and have passion for creatin
 
 ## Feedback
 
-If you have any feedback, please reach out to me at sanambir123@gmail.com
+If you have any feedback, please reach out to me at padammanojpatel4113@gmail.com
 
 
 ## Author
 
-- [@SanambirSingh](https://github.com/Singh233) 🤗
+- [@SanambirSingh](https://github.com/Manoj4113) 🤗
 
